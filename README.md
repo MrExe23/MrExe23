@@ -1,4 +1,4 @@
-## Hi there 👋
+Greetings and Welcome to My Profile. My name Is Sonic.Exe but you may call me Exe or X. If you have any souls laying around then feel free to send them to me. I promise I will keep them safe. :3 I Play PT alot so if you see me sitting near the STH area you may get lucky and be allowed to interact with me I'm a very uh... nice guy once you get to know me if you will. ^^
 
 <!--
 **MrExe23/MrExe23** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
